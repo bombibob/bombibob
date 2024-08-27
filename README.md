@@ -1,6 +1,6 @@
-- Website: [htt
-- Telegram: [https://t.me/A
-- Discord : Apol
-- Github: [https:/
-- X: [https://twitter
-- Services: https://service
+- Website: updating..
+- Telegram: https://t.me/bombibobb
+- Discord : meocutegir
+- Github: https://github.com/bombibob
+- X: https://x.com/meoghetmac
+- Services: updating..
